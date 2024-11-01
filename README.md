@@ -1,6 +1,10 @@
 # Timothy Rodriguez
 
+### 📧 timothyjayrodriguez@gmail.com
 ### 🌐 https://www.linkedin.com/in/timothy-rodriguez-swe/
+### 🌐 https://www.linkedin.com/in/timothy-rodriguez-swe/](https://main--timrodriguezportfolio.netlify.app/
+
+
 
 
 
